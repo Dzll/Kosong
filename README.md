@@ -1,0 +1,2 @@
+# Kosong
+Bebas tapi sopan
